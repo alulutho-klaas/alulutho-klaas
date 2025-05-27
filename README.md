@@ -9,8 +9,8 @@
 - ⚡ Fun fact: I dream of entering a **debate contest** someday!
 
 ## 📫 How to Reach Me
-- 📧 Email: [aluluthoklaas8@gmail.com](mailto:aluluthoklaas8@gmail.com) *(Please double-check the spelling in your email; currently it says "gmaial")*
-- 💼 LinkedIn: [Alulutho Klaas](https://www.linkedin.com/in/alulutho-klaas) *(add your full URL here if available)*
+- 📧 Email: [aluluthoklaas8@gmail.com](mailto:aluluthoklaas8@gmail.com) 
+- 💼 LinkedIn: [Alulutho Klaas](https://www.linkedin.com/in/alulutho-klaas) 
 
 ---
 
